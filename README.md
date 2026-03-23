@@ -1,4 +1,4 @@
-###  I'm Sobirov Boburbek MMA fighter 👋
+###  I'm Sobirov Boburbek  👋
 
 <p align="center">
   
